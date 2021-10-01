@@ -1,2 +1,5 @@
-# garena-free-fire-max-free-diamonds-redeem-codes
-Garena Free Fire MAX redeem codes 2021-2022 for free diamonds today
+# Garena Free Fire MAX redeem codes 2021-2022 for free diamonds today
+
+Garena Free Fire MAX redeem codes 2021-2022 for free diamonds today - Survivalists may want to stick to the combination of assault rifle and SMG. Spray gun and prey may not be the most elegant way to fight, but it may be very effective. If you are in a duet or group game, spread your weapons. Diversity is the spice of life. Being able to adapt quickly will give you an advantage over others on the battlefield. Get armor as soon as possible. If you haven't got Level 3 equipment, be sure to check any armor you see. Armor is really the difference between victory and defeat. A three-level armored player with an assault rifle is really not playable. When you have a chance, plus a medical bag, you can almost guarantee to win every 1-on-1. Armor does take damage over time, however, a level 3 low HP will protect you from damage better than a level 2 armor. Only when you reach the last 10-15% of durability can you trade. Even so, it's worth exploring before you find another level 3 item. garena free fire max code 2022
+
+<a href="https://kamitsuri.com/garena-free-fire-max/">Go here</a>
